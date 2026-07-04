@@ -40,6 +40,9 @@ For investors, ESG is one of many factors that can help evaluate a company's lon
 
 ## ESG in India
 
+![Uploading image.png…]()
+
+
 India has seen growing interest in sustainable investing through:
 
 * ESG-focused mutual funds
